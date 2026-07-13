@@ -52,7 +52,7 @@ Advantages of 14K Gold:
 •	Scratch resistant
 •	Ideal for daily wear
 
-14K gold is often used for making everyday pieces like [rings](https://oathjewelry.com/collections/rings), necklaces, and [earrings]([jewelry]([jewelry](https://oathjewelry.com/collections/earrings).
+14K gold is often used for making everyday pieces like [rings](https://oathjewelry.com/collections/rings), necklaces, and [earrings](https://oathjewelry.com/collections/earrings).
 
 Gold jewelry also varies according to color.
 
@@ -74,4 +74,4 @@ Rose Gold
 
 Conclusion
 
-There are many different forms of gold jewelry that one can wear. It varies in purity, and it varies in color. This makes it clear why people love gold jewelry.
+There are many different forms of [gold jewelry](https://oathjewelry.com/collections/gold-jewelry) that one can wear. It varies in purity, and it varies in color. This makes it clear why people love gold jewelry.
